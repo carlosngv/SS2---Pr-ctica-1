@@ -1,1 +1,1 @@
-# SS2---Pr-ctica-1
+# SS2 - Práctica 1
